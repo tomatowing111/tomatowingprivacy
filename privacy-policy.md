@@ -46,6 +46,6 @@ We reserve the right to update this Privacy Policy to reflect changes in our pra
 
 ## 7. Contact Us
 
-If you have any questions or concerns about this Privacy Policy, please contact us at [Insert Contact Information].
+If you have any questions or concerns about this Privacy Policy, please contact us at tomatowing111@gmail.com.
 
 By using our Service, you signify your acceptance of this Privacy Policy. If you do not agree to this policy, please do not use our Service.
